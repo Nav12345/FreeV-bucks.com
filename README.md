@@ -3,6 +3,6 @@ Now you can get free V-Bucks if you click here [editor on GitHub](https://github
 
 If not so, you can't buy all the great skins in FORTNITE!
 
-### Free?
+### Free? free
 
 Of course! It's free for every user!  
